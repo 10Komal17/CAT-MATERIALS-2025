@@ -27,7 +27,8 @@ If this repo helps even one person find direction or confidence, it’s worth ev
 
 So dive in, stay disciplined, and when you make it to your dream B-school — come back and help someone else who’s just starting out. 🌱
 
-English grammer- https://youtu.be/6OW1mJTLms0?si=gmpQbjGM215n_pyN
+English grammar playlist- https://youtu.be/6OW1mJTLms0?si=gmpQbjGM215n_pyN
+Quants formulae playlist - https://www.youtube.com/live/T8Bkbz-e6tA?si=Uvx7K6jnr_Do5o9B
 
 With heart,
 Komal Singh ✨
