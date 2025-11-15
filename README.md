@@ -8,7 +8,7 @@ Throughout my own CAT 2025 journey, I realized how scattered good resources are 
 
 So I decided to change that.
 
-This repository is my small way of paying it forward — a curated collection of sectionals, mock tests, and prep materials from TIME, IMS, and 2IIM, all organized to make your preparation smoother and self-driven.
+This repository is my small way of paying it forward — a curated collection of sectionals, mock tests, and prep materials from various sources, all organized to make your preparation smoother and self-driven.
 
 Every file here carries hours of effort, frustration, and learning — not just mine, but the shared journey of thousands of CAT aspirants who’ve walked this path before us.
 
@@ -26,6 +26,8 @@ Remember, CAT is not just a test of aptitude — it’s a test of consistency, c
 If this repo helps even one person find direction or confidence, it’s worth every bit of effort.
 
 So dive in, stay disciplined, and when you make it to your dream B-school — come back and help someone else who’s just starting out. 🌱
+
+English grammer- https://youtu.be/6OW1mJTLms0?si=gmpQbjGM215n_pyN
 
 With heart,
 Komal Singh ✨
