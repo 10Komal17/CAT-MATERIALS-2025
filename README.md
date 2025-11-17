@@ -31,6 +31,10 @@ English grammar playlist- https://youtu.be/6OW1mJTLms0?si=gmpQbjGM215n_pyN
 
 Quants formulae playlist - https://www.youtube.com/live/T8Bkbz-e6tA?si=Uvx7K6jnr_Do5o9B
 
+For exams like NMAT, SNAP, XAT, the following playlist of topics can be used 
+
+CRITICAL REASONING  https://youtu.be/x6-gSLjwgeg?si=-pP-UNScUXpk-28R
+
 With heart,
 Komal Singh ✨
 CAT 2025 Aspirant | Believer in Community over Competition
