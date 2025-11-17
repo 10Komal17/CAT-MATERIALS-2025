@@ -35,6 +35,8 @@ For exams like NMAT, SNAP, XAT, the following playlist of topics can be used
 
 CRITICAL REASONING  https://youtu.be/x6-gSLjwgeg?si=-pP-UNScUXpk-28R or https://youtu.be/n-K6EEnYLTo?si=mlv49taUmTQrTjdI
 
+INPUT - OUTPUT https://youtu.be/MRjxvFAXHDM?si=gsmQ5BXHqHELxnEx
+
 With heart,
 Komal Singh ✨
 CAT 2025 Aspirant | Believer in Community over Competition
