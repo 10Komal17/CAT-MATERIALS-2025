@@ -37,6 +37,10 @@ CRITICAL REASONING  https://youtu.be/x6-gSLjwgeg?si=-pP-UNScUXpk-28R or https://
 
 INPUT - OUTPUT https://youtu.be/MRjxvFAXHDM?si=gsmQ5BXHqHELxnEx
 
+BLOOD RELATIONS https://youtu.be/a903rpRteiE?si=aqvTH-5sAjnbqp5X
+
+CLOCK AND CALENDAR https://youtu.be/j_ntDkByGGc?si=DQlckH9FvzR9pKJr
+
 With heart,
 Komal Singh ✨
 CAT 2025 Aspirant | Believer in Community over Competition
