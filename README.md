@@ -40,6 +40,7 @@ INPUT - OUTPUT https://youtu.be/MRjxvFAXHDM?si=gsmQ5BXHqHELxnEx
 BLOOD RELATIONS https://youtu.be/a903rpRteiE?si=aqvTH-5sAjnbqp5X
 
 CLOCK AND CALENDAR https://youtu.be/j_ntDkByGGc?si=DQlckH9FvzR9pKJr
+SYNONYM & ANTONYM https://www.youtube.com/live/3Ho9BvhbWqA?si=qMlb7v3tZWn8o-ih
 
 With heart,
 Komal Singh ✨
