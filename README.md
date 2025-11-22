@@ -37,6 +37,8 @@ English grammar playlist- https://youtu.be/6OW1mJTLms0?si=gmpQbjGM215n_pyN
 
 Quants formulae playlist - https://www.youtube.com/live/T8Bkbz-e6tA?si=Uvx7K6jnr_Do5o9B
 
+DILR https://youtu.be/sN4GIKb409A?si=ceeirb3SSBEvnWdA or https://youtu.be/YkVtGKZN1kY?si=yqQluDLTeeoSiBAe
+
 For exams like NMAT, SNAP, XAT, the following playlist of topics can be used 
 
 CRITICAL REASONING  https://youtu.be/x6-gSLjwgeg?si=-pP-UNScUXpk-28R or https://youtu.be/n-K6EEnYLTo?si=mlv49taUmTQrTjdI
