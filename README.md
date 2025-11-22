@@ -28,7 +28,10 @@ If this repo helps even one person find direction or confidence, it’s worth ev
 So dive in, stay disciplined, and when you make it to your dream B-school — come back and help someone else who’s just starting out. 🌱
 
 FOR CAT RESOURCES:
+
 ODD ONE OUT https://youtu.be/QJYT1UPEp3o?si=oAOhVpfm0jwpypVk or https://www.youtube.com/live/Kj4v433e3UI?si=32cBKlaM8nxRmcsV
+
+RC TONE https://youtu.be/yQAi13Y969w?si=Dh2BE7zl6cE1vNU-
 
 English grammar playlist- https://youtu.be/6OW1mJTLms0?si=gmpQbjGM215n_pyN
 
