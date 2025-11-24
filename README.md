@@ -41,7 +41,7 @@ DILR https://youtu.be/sN4GIKb409A?si=ceeirb3SSBEvnWdA or https://youtu.be/YkVtGK
 
 For exams like NMAT, SNAP, XAT, the following playlist of topics can be used 
 
-CRITICAL REASONING  https://youtu.be/x6-gSLjwgeg?si=-pP-UNScUXpk-28R or https://youtu.be/n-K6EEnYLTo?si=mlv49taUmTQrTjdI
+CRITICAL REASONING  https://youtu.be/x6-gSLjwgeg?si=-pP-UNScUXpk-28R or https://youtu.be/n-K6EEnYLTo?si=mlv49taUmTQrTjdI 0r https://youtu.be/K83uBTBwb0c?si=3LyYele_HCJ9Oxw7
 
 INPUT - OUTPUT https://youtu.be/MRjxvFAXHDM?si=gsmQ5BXHqHELxnEx
 
