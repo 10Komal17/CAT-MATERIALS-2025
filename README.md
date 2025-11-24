@@ -51,6 +51,8 @@ CLOCK AND CALENDAR https://youtu.be/j_ntDkByGGc?si=DQlckH9FvzR9pKJr
 
 SYNONYM & ANTONYM https://www.youtube.com/live/3Ho9BvhbWqA?si=qMlb7v3tZWn8o-ih or https://youtu.be/zyxWfYf3TJQ?si=MEMa82QS7-EGAsYu or https://youtu.be/Rc-6Z9-680s?si=alfWf7_7W8TXIXm_
 
+SYLLOGISM https://www.youtube.com/live/GKzDfN-qfk4?si=DmMxEAks6EEgjCiT
+
 With heart,
 Komal Singh ✨
 CAT 2025 Aspirant | Believer in Community over Competition
