@@ -35,6 +35,8 @@ RC TONE https://youtu.be/yQAi13Y969w?si=Dh2BE7zl6cE1vNU-
 
 English grammar playlist- https://youtu.be/6OW1mJTLms0?si=gmpQbjGM215n_pyN
 
+PARAJUMBLES https://www.youtube.com/live/tpMZh5Mn_oQ?si=ffKGt_NH0dxU9LjA
+
 IDIOMS https://7esl.com/list-of-idioms/
 
 Quants formulae playlist - https://www.youtube.com/live/T8Bkbz-e6tA?si=Uvx7K6jnr_Do5o9B
