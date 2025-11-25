@@ -2,7 +2,7 @@
 Hey there, future 99 percentiler 👋
 
 If you’ve landed here, chances are you’ve felt that familiar mix of ambition, anxiety, and endless “where do I even begin?” that every CAT aspirant goes through.
-I’ve been there too.
+I’ve been there too. Watch this video to understand what CAT's mark vs percentile is about: https://www.youtube.com/live/zwJKEoRFowk?si=sQmjz-NemkEyfINl
 
 Throughout my own CAT 2025 journey, I realized how scattered good resources are — hopping between forums, Telegram groups, and coaching sites just to find one decent sectional test or mock. It’s exhausting.
 
