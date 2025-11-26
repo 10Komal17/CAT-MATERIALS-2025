@@ -57,6 +57,8 @@ SYNONYM & ANTONYM https://www.youtube.com/live/3Ho9BvhbWqA?si=qMlb7v3tZWn8o-ih o
 
 SYLLOGISM https://www.youtube.com/live/GKzDfN-qfk4?si=DmMxEAks6EEgjCiT
 
+DATA SUFFICIENCY https://www.youtube.com/live/74XXFkydSVc?si=G_JotUedOIDOg1fS
+
 With heart,
 Komal Singh ✨
 CAT 2025 Aspirant | Believer in Community over Competition
