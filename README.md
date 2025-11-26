@@ -39,7 +39,9 @@ PARAJUMBLES https://www.youtube.com/live/tpMZh5Mn_oQ?si=ffKGt_NH0dxU9LjA
 
 IDIOMS https://7esl.com/list-of-idioms/
 
-Quants formulae playlist - https://www.youtube.com/live/T8Bkbz-e6tA?si=Uvx7K6jnr_Do5o9B
+Quants formulae playlist - https://www.youtube.com/live/T8Bkbz-e6tA?si=Uvx7K6jnr_Do5o9B  
+
+Quants shortcut tricks https://youtu.be/Qx_xGYP9h-M?si=Yvx0CJ8WJ3F3B6Kk
 
 DILR https://youtu.be/sN4GIKb409A?si=ceeirb3SSBEvnWdA or https://youtu.be/YkVtGKZN1kY?si=yqQluDLTeeoSiBAe
 
